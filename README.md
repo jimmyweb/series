@@ -24,3 +24,9 @@
 - Weeds
 - Arrow (a bit)
 - Fringe (a bit)
+
+## Od Miszego:
+
+- Arrested Development
+- Trailer Park Boys
+- Parks and Recreation
